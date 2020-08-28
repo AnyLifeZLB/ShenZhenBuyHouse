@@ -38,6 +38,6 @@
 ### 参考资料
 - [1] [新房也有猫腻？](https://mp.weixin.qq.com/s/SbGxyV3V3wAXfzvn30mX-Q)
 - [2] [特区40年 | 一部“电影”，一首MV，祝深圳特区生日快乐](https://mp.weixin.qq.com/s/USwgSfdThQHCqN2D6CwjHg)
-- [3] [买房炒房的陷阱]([https://zhuanlan.zhihu.com/p/143856825](https://zhuanlan.zhihu.com/p/143856825)
+- [3] [买房炒房的陷阱](https://zhuanlan.zhihu.com/p/143856825)
 - [4] [深圳炒房“忽悠链”：以1.28万会费开启买房套路](https://money.163.com/20/0615/07/FF58KBOD00258105.html?f=relatedArticle)
-- [5] [中介 卖房 套路]([https://www.sohu.com/a/366903406_554746](https://www.sohu.com/a/366903406_554746)
+- [5] [中介 卖房 套路](https://www.sohu.com/a/366903406_554746)
